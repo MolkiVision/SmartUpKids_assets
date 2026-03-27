@@ -1,0 +1,1 @@
+# SmartUpKids_assets
